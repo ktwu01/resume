@@ -1,1 +1,1 @@
-# [KOUTIAN'S RESUME](CV_Koutian_Wu_UTAustin_PhD_AI.pdf)
+# [KOUTIAN'S RESUME](resume_AI_Koutian_Wu_UTAustin_PhD.pdf)
